@@ -1,2 +1,4 @@
-# DAnhandienkhuanmat
-bài tập cuối kì môn trí tuệ nhân tạo
+# ádasdasdasdasdasdasdasdasdasdasDAnhandienkhuanmat
+
+bài tập cuối kì môn trí tuệ nhân tạosdasdadsd
+
